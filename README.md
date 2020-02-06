@@ -1,3 +1,3 @@
 # solmsanchez.github.io
-Portafolio
+Portafolio (on progress)
 solmsanchez.github.io
